@@ -1,4 +1,4 @@
-# DotNet_Reactor CRACKED
+# DotNet_Reactor x Enigma32g CRACKED
 .
 -
 DotNet_Reactor and Enigma32g are paid Crypter's to fud exe files.
